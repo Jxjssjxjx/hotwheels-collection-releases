@@ -1,3 +1,5 @@
+abandanded project due to me having more important thing to do in life
+
 Hot wheels premium checklist
 
 This is a checklist for you all to see or check most of the hohwheels premium ever released.
