@@ -5,3 +5,5 @@ This is a checklist for you all to see or check most of the hohwheels premium ev
 changelog is in the app for a look
 
 photo credit to hotwheels wiki
+
+all are vibecoded
